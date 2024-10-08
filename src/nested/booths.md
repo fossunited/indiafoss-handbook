@@ -2,7 +2,7 @@
 
 **Time required** - 30-60 mins a day, a few weeks before the event.
 
-## Task
+## Tasks
 
 ### Pre-event:
 - Shortlist community booths and projects, based on the form responses.
